@@ -1,1 +1,0 @@
-# technical-assignment-week-7-FAJAR-NUGRAHA
